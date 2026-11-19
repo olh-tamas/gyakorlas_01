@@ -1,1 +1,1 @@
-# gyakorlas_01
+#Oláh Tamás
